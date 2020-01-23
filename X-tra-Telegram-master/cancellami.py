@@ -1,1 +1,0 @@
-Ricorda di cancellarmi
